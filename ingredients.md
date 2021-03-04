@@ -1,0 +1,3 @@
+Ingredients is:
+
+Dosas are made from soaked and drained rice, fenugreek seeds, and urad daal, also known as black lentils. Blended in a food processor and combined with water, the mixture makes a thin batter that ferments until flavorful.
